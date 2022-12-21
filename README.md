@@ -1,4 +1,4 @@
-### Assalam-o-Alaikum 👋
+### Well Well Well! 👋
 
 <!--
 **muneebGH/muneebGH** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
